@@ -14,7 +14,7 @@ Outdoor equipment:
 
 http://gentleworld.org/kale-an-easy-beginners-guide-to-growing/
 
-
+https://www.youtube.com/watch?v=HwavsDee9vM
 
 
 ## Extra resources
