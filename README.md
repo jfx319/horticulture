@@ -28,3 +28,7 @@ Other keywords:
 * vertical farming
 * indoor farming
 
+## Research literature
+ * http://hortsci.ashspublications.org/content/49/4/448.full
+ 
+ 
