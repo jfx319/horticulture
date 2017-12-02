@@ -21,6 +21,9 @@ https://www.youtube.com/watch?v=HwavsDee9vM
 
 Fancy equipment: 
 * http://illumitex.com/?gclid=EAIaIQobChMI18TtnP231wIVFzaBCh0jswzwEAAYAiAAEgK8UfD_BwE
+  * https://smartgrow.systems/plant-light-dli-calculator/
+  * https://www.ledgrowlightsdepot.com/pages/par-ppf-ppfd-and-dli-uncovered
+  * https://cdn.shopify.com/s/files/1/0504/4713/files/umoles_to_DLI.pdf
 * https://www.gorillagrowtent.com
 
 
